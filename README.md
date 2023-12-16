@@ -25,3 +25,4 @@ Best regards,
 [Your Full Name]
 Junior Data Entry Operator
 "Addressing numerous errors; comprehensive review and corrections needed for improved file quality."In addition, please ensure inclusion of missing data for a thorough and accurate file.""
+I feel fortunate to have you as my manager. Your support make a significant difference, and I truly appreciate it.. I want you to know that I'll never forget the impact you've had on my life 
