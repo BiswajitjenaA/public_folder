@@ -26,3 +26,14 @@ Best regards,
 Junior Data Entry Operator
 "Addressing numerous errors; comprehensive review and corrections needed for improved file quality."In addition, please ensure inclusion of missing data for a thorough and accurate file.""
 I feel fortunate to have you as my manager. Your support make a significant difference, and I truly appreciate it.. I want you to know that I'll never forget the impact you've had on my life 
+Subject: Urgent Leave Request for Sister's Marriage on 21-22 December
+
+Dear [HR Sir's Name],
+
+I hope this message finds you well. I am writing to request a leave of 2 days on 21st and 22nd December due to my sister's marriage. I have discussed this with my manager, who advised me to confirm with HR. Currently, I have 1.94 days of annual leave available, and my manager has suggested that I can take the additional 0.06 days for this purpose.
+
+My presence at my sister's wedding is very important, and I kindly request your understanding of this situation. Your prompt approval would greatly assist me in making necessary arrangements for the event.
+
+Thank you for your consideration.
+
+Best regards, [Your Name]
