@@ -37,3 +37,4 @@ My presence at my sister's wedding is very important, and I kindly request your 
 Thank you for your consideration.
 
 Best regards, [Your Name]
+"Wishing the team a Merry Christmas! May the festive spirit bring joy, laughter, and shared moments of warmth. Here's to a season of gratitude and a fantastic year ahead. Cheers to our incredible team!"
