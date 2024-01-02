@@ -28,3 +28,9 @@ As I embark on a new journey post-resignation, I just wanted to express how much
 
 Take care,
 [Your Name]
+Hey Sami Durai,
+
+Your support and love always made the team brighter and me happier. Working together was a joy, and I'll carry those positive vibes with me. Wishing you continued success and looking forward to crossing paths again.
+
+Cheers,
+[Your Name]
