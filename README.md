@@ -22,3 +22,9 @@ I wanted to let you know that I have resigned from my position at JiBe today due
 
 Best,
 [Your Name]
+Hey [TL's Name],
+
+As I embark on a new journey post-resignation, I just wanted to express how much I'm going to miss our collaboration and your guidance. Your leadership has been invaluable, and I'll carry the lessons learned here into my next chapter. Wishing the team continued success.
+
+Take care,
+[Your Name]
