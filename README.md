@@ -16,3 +16,9 @@ Best regards,
 [Your Full Name]
 [Your Position]
 [Contact Information]
+Dear Team,
+
+I wanted to let you know that I have resigned from my position at JiBe today due to an exciting opportunity requiring relocation. I'm grateful for the experiences and support during my time here. Thank you for everything.
+
+Best,
+[Your Name]
